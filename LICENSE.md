@@ -1,4 +1,4 @@
-# 
+# Nouveau low cap gem sniper bot modules complémentaires pour Mac OS | Exclusif low cap gem sniper bot modules complémentaires pour PC Windows. Avec détection de tendances et détection de nouveaux jetons — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
